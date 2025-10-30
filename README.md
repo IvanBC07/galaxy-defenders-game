@@ -1,2 +1,2 @@
 # galaxy-defenders-game
-Juego colaborativo Galaxy Defenders game. dagdjas
+Juego colaborativo Galaxy Defenders gamesdfdfsfsdfds
