@@ -1,2 +1,4 @@
 # galaxy-defenders-game
-Juego colaborativo Galaxy Defenders game.
+sdkfnsjkfnsjnfnasfafahjgdagdjakusy
+Álvaro Plaza Ortizioioio
+oopp
